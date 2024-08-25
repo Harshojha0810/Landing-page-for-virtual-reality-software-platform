@@ -1,1 +1,1 @@
-Landing-Page-for-vitual-reality-software-platform
+Landing-Page-for-virtual-reality-software-platform
